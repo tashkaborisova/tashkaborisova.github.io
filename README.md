@@ -4,9 +4,10 @@
 
 ~~The album will be released on May 8, 2020~~
 
-**ORDER NOW ON**
+**AVAILIABLE NOW ON**
 <a href=http://florianchristl.de/>OFFICIAL WEBSITE</a> 
 
+*Florian talks about his concerts:*
 >The last minutes before a concert begins are very special, cause there's a unique atposphere...
 
 ![alt text](http://florianchristl.de/wp-content/uploads/2020/03/Florian_Christl_2019%C2%A9Alexey-Kalganov-Alina-Palto-18.jpg)
